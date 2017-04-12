@@ -1,2 +1,2 @@
 # lomalinda.github.io
-Who's WHo in Esri Support Services
+Who's Who in Esri Support Services
